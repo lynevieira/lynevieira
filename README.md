@@ -9,3 +9,10 @@ meu nome lyne vieira
  ### VOCÊ ENTRAR EM CONTATO COMIGO 📫
 
  ribeiro.taline@escola.pr.gov.br
+
+ lynevieira@g-mail.com.br
+
+
+
+
+
